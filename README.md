@@ -14,7 +14,7 @@ You can sort your messages by different orders like date. And also you can give 
 
 
 ## Contact Me
-Alireza Mohammadi - instagram : [@aliirezamohammadii](https://instagram.com/aliirezamohammadii) - email : ali9700mo@gmail.com
+Alireza Mohammadi / instagram : [@aliirezamohammadii](https://instagram.com/aliirezamohammadii) / email : ali9700mo@gmail.com
 
 
 Hope you enjoy!
