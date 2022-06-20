@@ -1,2 +1,2 @@
 Hi!
-I'm gonna write about myself ASAP ^_^
+I'm gonna write about myself here, ASAP ^_^
